@@ -1,2 +1,4 @@
 # ENGR4960J_2023_summer
-上海交通大学密西根学院ENGR4960J课程
+Course ENGR4960J Professional Ethics of Joint Institute of Shanghai Jiao Tong University
+
+Please follow the Honor Code and don't copy my works.
